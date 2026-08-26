@@ -1,4 +1,4 @@
-[![text-(3).gif](https://i.postimg.cc/rmjBvrGy/text-(3).gif)](https://postimg.cc/jwW3fCkB)
+[![text-(4).gif](https://i.postimg.cc/FHs8DthF/text-(4).gif)](https://postimg.cc/4mqWxSKj)
 [![The-Middle-Logo.webp](https://i.postimg.cc/HsvprfyJ/The-Middle-Logo.webp)](https://postimg.cc/w7JKP4FH)
 
 ═══════
