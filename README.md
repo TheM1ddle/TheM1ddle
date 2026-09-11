@@ -3,7 +3,7 @@
 
 ═══════
 
-***pebble*** or ***big brother***
+***pebbles*** , ***big brother*** , ***void***
 
 *it/its*
 
