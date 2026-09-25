@@ -11,7 +11,7 @@ pebble (dandy's world) **fictionkin**
 
 ═══════
 
-[ata 1](https://tumore.atabook.org) . [pronouns.cc](https://pronouns.cc/@HALIBUTHARPOON) . [straw.page](https://straw.page/theonewhostoodbeforegod)
+[ata 1](https://tumore.atabook.org) . [pronouns.cc](https://pronouns.cc/@HALIBUTHARPOON) . [straw.page](https://theonewhostoodbeforegod.straw.page)
 
 [![100px-Boombox-of-Dramatic-Entrances-Gift.webp](https://i.postimg.cc/3Nws7x90/100px-Boombox-of-Dramatic-Entrances-Gift.webp)](https://postimg.cc/34PSF7s3)
 
